@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **v.a.stekolschikov@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
